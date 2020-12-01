@@ -10,6 +10,6 @@ theme them around a snowy region.
 
 ### List
 
-Dec 1st - A group of kobolds have been terrorizing some local children. They seem to want to join snowball fights but don't quite understand the rules. 
+* Dec 1st - A group of kobolds have been terrorizing some local children. They seem to want to join snowball fights but don't quite understand the rules. 
 Chiefly because they are using lumps of coal instead of snowballs. Which is odd, because coal is neither a snow nor ball. Local parents are asking
 anyone for help.
