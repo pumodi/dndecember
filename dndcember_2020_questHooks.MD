@@ -13,3 +13,7 @@ theme them around a snowy region.
 * Dec 1st - A group of kobolds have been terrorizing some local children. They seem to want to join snowball fights but don't quite understand the rules. 
 Chiefly because they are using lumps of coal instead of snowballs. Which is odd, because coal is neither a snow nor ball. Local parents are asking
 anyone for help.
+* Dec 2nd - A group of snow sculptures have come to life in the nearby graveyard. They are moving incredibly slowly towards town....menacingly. The
+cleric from the temple adjacent to the graveyard have mentioned someone, or something, hanging out by the grave stones at night, chanting quietly
+while rolling snow body parts. The temple is asking someone to investigate and stop the snow sculpture shambling. Though there's no rush. As they said,
+they move incredibly slowly.
