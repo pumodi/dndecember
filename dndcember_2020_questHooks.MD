@@ -17,6 +17,6 @@ anyone for help.
 cleric from the temple adjacent to the graveyard have mentioned someone, or something, hanging out by the grave stones at night, chanting quietly
 while rolling snow body parts. The temple is asking someone to investigate and stop the snow sculpture shambling. Though there's no rush. As they said,
 they move incredibly slowly.
-* Dec 3rd - Some locals have been reporting stories of townsfolk going mad and asking out at their neighbours. The way they attack don't seem to share
+* Dec 3rd - Some locals have been reporting stories of townsfolk going mad and attacking at their neighbours. The way they attack don't seem to share
 any similarities and recovery times vary wildly. The only constant is each person referenced kissing someone under a winter-berry sprig mounted above a door,
 as per local tradition. There's a small reward for anyone who can figure out what's going on.
