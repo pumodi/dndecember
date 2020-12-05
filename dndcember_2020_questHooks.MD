@@ -20,3 +20,4 @@ they move incredibly slowly.
 * Dec 3rd - Some locals have been reporting stories of townsfolk going mad and lashing out at their neighbours. The way they attack don't seem to share
 any similarities and recovery times vary wildly. The only constant is each person referenced kissing someone under a winter-berry sprig mounted above a door,
 as per local tradition. There's a small reward for anyone who can figure out what's going on.
+* Dec 4th - The town seems to be celebrating the season with a new tradition: bare knuckled brawling. The local merchant's guild is sponsoring a fight night with prizes for the top three competitors. Even better, a famous wizard is making a boxing-ring out of ice just for the occassion. So you can fight AND BE COLD! Entry is free with prizes sponsored by the guild.
