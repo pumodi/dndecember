@@ -22,3 +22,4 @@ any similarities and recovery times vary wildly. The only constant is each perso
 as per local tradition. There's a small reward for anyone who can figure out what's going on.
 * Dec 4th - The town seems to be celebrating the season with a new tradition: bare knuckled brawling. The local merchant's guild is sponsoring a fight night with prizes for the top three competitors. Even better, a famous wizard is making a boxing-ring out of ice just for the occassion. So you can fight AND BE COLD! Entry is free with prizes sponsored by the guild.
 * Dec 5th - Tavern Master Gwen is upset. Someone's been stealing all the eggnong and now she can't seem to find someone to supply anymore. All of her normal sources have been saying that it's 'not safe'.
+* Dec 6th - There's an apple pie eating contest tonight! Come and challenge the local champion! Top score is 37 slices. If you can beat it you get a championship belt and free meals at the bakery for the rest of the month.
