@@ -40,3 +40,6 @@ as per local tradition. There's a small reward for anyone who can figure out wha
 * Dec 21st - The halls are being decked! Literally! A bunch of Trolls found their way into the local library and are smashing up hallways. Not only are the books at risk but now it's freezing inside because of all the holes. Someone help!
 * Dec 22nd - A pack of goblins have been throwing exploding chestnuts in the fields. It seems like they're playing some kind of game but it's very dangerous and is creating some open fires. Thankfully, the crops aren't in much danger of being roasted due to all the frost. Either way, the farmers would like some help putting a stop to the nonsense.
 * Dec 23rd - Sometimes the jobs aren't to fix a problem. A schoolteacher is looking for someone to donate presents for their children to open. A few have already been purchased but a schoolteachers salary isn't very much, especially in these trying times. Any help would be welcomed with open arms!
+* Dec 24th - The tavernmaster has gifts for everyone! They just need help hauling them out of the basement. Honestly, this is just an excuse to give a magic item to your players. What's in the basement? Something scary? Something frosty? Could be! Either way, give a gift to those adventurers.
+
+Merry Christmas everyone! 
